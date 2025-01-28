@@ -1,10 +1,10 @@
-Hey there👋
+👋Hey there
 
 Work🏗️ : 
 
    • Previously - Web Developer Intern at [Prodigy Infotech](https://www.linkedin.com/company/prodigy-infotech/) 
 
-Connect with me: 
+Connect with me🤝: 
 
    • Email: vishaldhuri57@gmail.com 
 
