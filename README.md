@@ -2,12 +2,12 @@ Hey there👋
 
 Work🏗️ : 
 
-    • Previously - Web Developer Intern at Prodigy Infotech 
+   • Previously - Web Developer Intern at Prodigy Infotech 
 
 Connect with me: 
 
-    • Email: vishaldhuri57@gmail.com 
+   • Email: vishaldhuri57@gmail.com 
 
-    • LinkedIn: @https://www.linkedin.com/in/vishal-dhuri-1a068026b/
+   • LinkedIn: @[VishalDhuri57[https://www.linkedin.com/in/vishal-dhuri-1a068026b/]]
 
-    • Instagram: @https://www.instagram.com/justvishaalll_/
+   • Instagram: @justvishaalll_
