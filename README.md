@@ -8,6 +8,8 @@ Connect with me🤝:
 
    • Email: vishaldhuri57@gmail.com 
 
+   • Portfolio: https://portfolio-vishaldhuri.netlify.app/
+
    • LinkedIn: [@VishalDhuri57](https://www.linkedin.com/in/vishal-dhuri-1a068026b)
 
    • Instagram: [@justvishaalll_](https://www.instagram.com/justvishaalll_/)
